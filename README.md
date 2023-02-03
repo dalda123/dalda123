@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @dalda123
-- 👀 I’m interested in safe internet.
+- 👀 I’m interested in 
 - 🌱 I’m currently learning tourism
-- 💞️ I’m looking to collaborate on tracker free internet services
+- 💞️ I’m looking to collaborat
 - 📫 Want to reach me - 
 
 <!---
